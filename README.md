@@ -1,9 +1,16 @@
 
-" Fire and ice supposedly don't mix... questioning if Spider-Man is flirting with me as the world is ending? "
+<small><div align="center">"You know, they say fire and ice don't go together. But you and me? Hold on... are you actually hitting on me as the world ends around us?"
 
 
+
+
+ 
 <img width="1071" height="756" alt="IMG_9335" src="https://github.com/user-attachments/assets/fd5f9e16-d09b-4174-9459-f5d6a9b295b7" />
 
- > check this out if youre a ponytowner: https://rentry.co/ireneiddesleigh
 
-> arts made by this amazing artist on instagram: justginart
+
+[𝄞⨾𓍢ִ໋ main rentry ](https://rentry.co/psithurismsea)
+[˚˖𓍢ִ໋❀ shared rentry ](https://rentry.co/doubledatequadro)
+[.☘︎ ݁˖ atabook](https://cosmicblaze.atabook.org/)
+
+"Ask me again after we save reality, hotshot."
