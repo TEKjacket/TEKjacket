@@ -13,4 +13,4 @@
 [˚˖𓍢ִ໋❀ shared rentry ](https://rentry.co/doubledatequadro)
 [.☘︎ ݁˖ atabook](https://cosmicblaze.atabook.org/)
 
-"Ask me again after we save reality, hotshot."
+"Ask me again after we save reality, *hotshot.*"
