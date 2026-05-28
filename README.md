@@ -12,5 +12,6 @@
 [𝄞⨾𓍢ִ໋ main rentry ](https://rentry.co/psithurismsea)
 [˚˖𓍢ִ໋❀ shared rentry ](https://rentry.co/doubledatequadro)
 [.☘︎ ݁˖ atabook](https://cosmicblaze.atabook.org/)
+[⸝⸝ gunslol ](https://guns.lol/humantorch)
 
 "Ask me again after we save reality, *hotshot.*"
