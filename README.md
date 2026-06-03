@@ -1,10 +1,11 @@
+
 <small><div align="center">"Sometimes it's hard being superior to every single other person on the planet."
 
 
 
 
  
-<small><img width="734" height="309" alt="IMG_9475" src="https://github.com/user-attachments/assets/147258a0-f2d8-4cdd-bd61-02b826b799a4" />
+<small><img width="735" height="396" alt="IMG_9548" src="https://github.com/user-attachments/assets/5dd0c7ca-e822-4dd6-90f1-17df0104343c" />
 
 
 
