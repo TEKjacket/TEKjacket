@@ -1,5 +1,6 @@
 
-<small><div align="center">"I knew you'd come back."
+<small><div align="center">"I knew you'd come back. I'm really glad to have you with me on this one, pal. Seriously, you're the only one I can count on."
+
 
 
 
