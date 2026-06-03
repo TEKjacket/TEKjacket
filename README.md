@@ -1,5 +1,5 @@
 
-<small><div align="center">"Sometimes it's hard being superior to every single other person on the planet."
+<small><div align="center">"I knew you'd come back."
 
 
 
